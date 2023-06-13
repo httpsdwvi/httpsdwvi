@@ -4,7 +4,7 @@
 
 📚 I'm always studying and coding something new.
 
-⚡ My hobbies? I have many but my interests are mainly in sports like F1 🏎️, Football ⚽ and Basketball 🏀.
+⚡ My hobbies? I have many but my interests are mainly in sports like Motorsports 🏎️, Football ⚽ and Basketball 🏀.
 
 🌱 My goals? Just be a better person.
 
